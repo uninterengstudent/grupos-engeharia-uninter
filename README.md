@@ -3,7 +3,7 @@
 
 Aqui você encontra de forma mais simples os grupos para comunicação entre os alunos
 
-##Administração Estratégica - Atividades Complementares
+## Administração Estratégica - Atividades Complementares
 https://chat.whatsapp.com/KHNIqDuemBS2yRHbkNodVQ
 
 ##Automação Industrial - Cadeia de Suprimentos
