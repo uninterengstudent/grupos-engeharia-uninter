@@ -255,6 +255,12 @@ https://chat.whatsapp.com/FAExh4Qgr8P1Bocmkzx8Dy
 ## Química Geral
 https://chat.whatsapp.com/Lx2FMnbNsZK1Ccyi6rh4lA
 
+
+## Instrumentação Eletrônica
+https://chat.whatsapp.com/JyWSXaSM7cYF8K6cg356q8
+
+## Rede de computadores
+https://chat.whatsapp.com/Jz5q1MWkxnLFBwLmVwo6GS
 ## Resistência dos Materiais
 https://chat.whatsapp.com/FAuLnrwFucILOfOzsxtyvO
 
