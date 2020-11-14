@@ -287,3 +287,9 @@ https://chat.whatsapp.com/JpUmjVkMLXMBsNK4l86NA2
 
 ## Ferramentas Matemáticas Aplicadas
 https://chat.whatsapp.com/Fs2lzMsZDIk5IAvFbDEu8t
+
+## Legislação e Propriedade Intelectual
+https://chat.whatsapp.com/B6me1DZ6b8iCCShnpxrPtw
+
+## Gestão de Inovação e Tecnologia (GIT)
+https://chat.whatsapp.com/CSza2JDZFVIKffMLQN4dZF
